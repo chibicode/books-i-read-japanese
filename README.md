@@ -12,3 +12,4 @@
 * [挫折のすすめ](http://www.amazon.co.jp/挫折のすすめ-NextPublishing-平石-郁生-ebook/dp/B00JY2KMYO?tag=chibicode-22)
 * [Love理論 (漫画)](http://www.amazon.co.jp/LOVE理論-1-アクションコミックス-水野-敬也/dp/4575841900?tag=chibicode-22)
 * ★ [The Flash Boys](http://www.amazon.co.jp/Flash-Boys-Wall-Street-Revolt-ebook/dp/B00HVJB4VM?tag=chibicode-22)
+* ★ [成功する子 失敗する子](http://www.amazon.co.jp/成功する子-失敗する子――何が「その後の人生」を決めるのか-ポール・タフ/dp/4862761666?tag=chibicode-22)
