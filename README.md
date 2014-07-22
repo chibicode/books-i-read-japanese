@@ -18,4 +18,5 @@
 * [アニメを仕事に!](http://www.amazon.co.jp/アニメを仕事に-トリガー流アニメ制作進行読本-星海社新書-舛本-和也/dp/4061385496?tag=chibicode-22)
 * ★ [ナショナルジオグラフィック プロの撮り方 露出を極める ](http://www.amazon.co.jp/ナショナルジオグラフィック-プロの撮り方-露出を極める-ナショナル・ジオグラフィック-ブライアン・ピーターソン/dp/486313195X?tag=chibicode-22)
 * ★ [(株)貧困大国アメリカ](http://www.amazon.co.jp/株-貧困大国アメリカ-岩波新書-堤-未果/dp/4004314305?tag=chibicode-22)
+* [僕だけがいない街](http://www.amazon.co.jp/僕だけがいない街-1-角川コミックス・エース-三部-けい-ebook/dp/B00CM0F5PQ?tag=chibicode-22)
 * ★★ [実践 日本人の英語](http://www.amazon.co.jp/実践-日本人の英語-岩波新書-マーク・ピーターセン/dp/4004314208?tag=chibicode-22)
